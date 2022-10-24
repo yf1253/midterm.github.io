@@ -1,1 +1,1 @@
-Miedterm
+Midterm
